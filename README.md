@@ -1,0 +1,1 @@
+Experienced Software Developer with a demonstrated history of working in the computer software industry. Skilled in Oracle Database, .BET Technology, Web Technologies, Databases, and Software Testing. Strong business development professional with a bachelor of computer Applications focused in Software Engineering from Ness wadia college of commerce, India.
